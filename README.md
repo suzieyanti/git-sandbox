@@ -32,5 +32,7 @@ Happy
 
 Congratulation !
 
+Hi and hello !
+
 Learn something new
 happy birthday
