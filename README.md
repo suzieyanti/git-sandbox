@@ -1,13 +1,15 @@
 # git-sandbox
 Worry-free sandbox repository for learning.
 
+Cg Eriyah was here too
+=======
+I was here too
 
-Me was here too
 
 BELAJAR SELAGI TERDAYA
 
-I am learning.
-I Love Learning
+I love coding
+I Love coding
 JANGAN CEPAT PUTUS ASA
 Hello XD !
 
@@ -20,6 +22,15 @@ I Love Learning
 
 Hello XD !
 
-Hello. Good Morning
+Hello. Good evening
+
+
+
+hooray!
+Happy
+
 
 Congratulation !
+
+Learn something new
+happy birthday
