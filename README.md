@@ -2,12 +2,12 @@
 Worry-free sandbox repository for learning.
 
 
-Me was here too
+Cg Eriyah was here too
 
 BELAJAR SELAGI TERDAYA
 
-I am learning.
-I Love Learning
+I love coding
+I Love coding
 JANGAN CEPAT PUTUS ASA
 Hello XD !
 
@@ -20,5 +20,5 @@ I Love Learning
 
 Hello XD !
 
-Hello. Good Morning
+Hello. Good evening
 
