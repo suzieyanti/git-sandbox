@@ -1,8 +1,7 @@
 # git-sandbox
 Worry-free sandbox repository for learning.
 
-
-Me was here too
+I was here too
 
 BELAJAR SELAGI TERDAYA
 
@@ -21,6 +20,7 @@ I Love Learning
 Hello XD !
 
 Hello. Good Morning
+
 
 Learn something new
 happy birthday
