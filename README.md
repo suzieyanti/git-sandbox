@@ -1,8 +1,10 @@
 # git-sandbox
 Worry-free sandbox repository for learning.
 
-
 Cg Eriyah was here too
+=======
+I was here too
+
 
 BELAJAR SELAGI TERDAYA
 
@@ -22,3 +24,6 @@ Hello XD !
 
 Hello. Good evening
 
+
+Learn something new
+happy birthday
