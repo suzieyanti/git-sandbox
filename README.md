@@ -20,3 +20,7 @@ I Love Learning
 Hello XD !
 
 Hello. Good Morning
+
+
+Learn something new
+happy birthday
