@@ -1,18 +1,19 @@
 # git-sandbox
 Worry-free sandbox repository for learning.
 
-Cg Eriyah was here too
+Cikgu Mohanavalli from SMK TUN SYED SHEH BARAKBAH.
 
-I was here too
+Fom Sungai Bakap
+
+KEEP LEARNING
 
 BELAJAR SELAGI TERDAYA
 
-I love coding
-I Love coding
+I love TO learn coding
 JANGAN CEPAT PUTUS ASA
-Hello XD !
+Hello Everyone
 
-Hello XD !
+Welcome to my page
 
 I was here! Yay!
 
@@ -29,10 +30,5 @@ Happy
 Congratulation !
 
 Hi and hello !
-
-Hi! I'm here too..
-
-Learn something new
-happy birthday
-
 Hi there.. Everything is FINE HERE.. 
+Hi! I'm here too..
