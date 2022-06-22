@@ -36,6 +36,21 @@ Hi and hello !
 Hi! I'm here too..
 
 Learn something new
+
+happy 
+
+bila nak balik
+
+bila nak balik
+
+bila nak balik
+
+bila nak balik
+
+bila nak balik
+
+birthday
+
 happy birthday
 kkrikkk...krikkkk
 
@@ -43,4 +58,3 @@ im waitinggggg
 
 Hi there.. Everything is FINE HERE.. 
 Hi! I'm here too..
-
