@@ -39,6 +39,11 @@ Learn something new
 
 happy birthday
 
+hello everybody in nibong tebal
+
+
+happy birthday
+
 Hai saya dari jawi
 
 
@@ -67,3 +72,4 @@ im waitinggggg
 
 Hi there.. Everything is FINE HERE.. 
 Hi! I'm here too..
+
