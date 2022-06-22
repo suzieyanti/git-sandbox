@@ -38,6 +38,11 @@ Hi! I'm here too..
 Learn something new
 
 happy birthday
+
+Hai saya dari jawi
+
+
+happy birthday
 enjoy belajar
 
 
@@ -62,4 +67,3 @@ im waitinggggg
 
 Hi there.. Everything is FINE HERE.. 
 Hi! I'm here too..
-
