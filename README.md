@@ -37,6 +37,10 @@ Hi! I'm here too..
 
 Learn something new
 
+happy birthday
+enjoy belajar
+
+
 happy 
 
 bila nak balik
@@ -58,3 +62,4 @@ im waitinggggg
 
 Hi there.. Everything is FINE HERE.. 
 Hi! I'm here too..
+
