@@ -34,3 +34,4 @@ Hi! I'm here too..
 
 Learn something new
 happy birthday
+enjoy belajar
