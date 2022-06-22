@@ -30,8 +30,5 @@ Happy
 Congratulation !
 
 Hi and hello !
-
+Hi there.. Everything is FINE HERE.. 
 Hi! I'm here too..
-
-Learn something new
-happy birthday
