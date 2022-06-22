@@ -34,3 +34,5 @@ Hi! I'm here too..
 
 Learn something new
 happy birthday
+
+Hai saya dari jawi
