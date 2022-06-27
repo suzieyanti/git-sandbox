@@ -1,5 +1,10 @@
 # git-sandbox
+
+🫠🫠🫠
+
 Worry-free sandbox repository for learning.
+
+Jom pergi makan kat Lotus...mcm2 ada
 
 Cikgu Mohanavalli from SMK TUN SYED SHEH BARAKBAH.
 
@@ -33,6 +38,7 @@ Congratulation !
 
 Hi and hello !
 
+hello and hi
 Hi! I'm here too..
 
 Learn something new
@@ -40,7 +46,7 @@ Learn something new
 happy birthday
 
 hello everybody in nibong tebal
-
+sel-sel otak terus berhubung🤣
 
 happy birthday
 
@@ -73,4 +79,5 @@ im waitinggggg
 Hi there.. Everything is FINE HERE.. 
 Hi! I'm here too..
 
+Hi from PKG Tg Bungah
 Take it easy !
