@@ -33,6 +33,7 @@ Congratulation !
 
 Hi and hello !
 
+hello and hi
 Hi! I'm here too..
 
 Learn something new
