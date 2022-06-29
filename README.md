@@ -2,7 +2,6 @@
 
 yakyak yeaaaaa
 
-🫠🫠🫠
 
 This is a melting face emoji
 
